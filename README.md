@@ -103,7 +103,7 @@ Mini prototypes focused on:
 ## 🌍 Connect With Me
 
 - 💼 LinkedIn: https://www.linkedin.com/in/otmane-el-ayachi-610bb128b/
-- 📧 Email: (Add your professional email)
+- 📧 Email: otmaneelayachi.935@gmail.com
 - 🎮 Esports Organization: BACK 2 REVENGE (B2R)
 
 ---
